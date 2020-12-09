@@ -1,2 +1,2 @@
 # hello-world
-My first and only github repository of this year
+Hey there , i am Yash Sharma , also known as the God Of Darkness , pretty much unkillable and unbeatable but nonetheless , fun is fun.
